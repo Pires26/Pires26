@@ -7,3 +7,4 @@
  - 📫 Como entrar em contato comigo:  gui.andrianipires@gmail.com  .
  - ⚡ Curiosidade: sou fã de cinema no geral,amo jogar e passar tempo com amigos e família.
  - ⚽ Curiosidade: amo jogar qualquer esporte.
+ - 💜 Faço Live na Twitch sempre que posso
