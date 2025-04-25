@@ -1,5 +1,5 @@
 
-## Olá👋sou o Guilherme-Pires
+## Olá👋sou o Guilherme Pires
 
  - 👨‍🎓 Estudante de Engenharia de Software - 1º Semestre
  - 🔭 Atualmente estou trabalhando como Jovem Aprendiz.
